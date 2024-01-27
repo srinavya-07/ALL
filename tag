@@ -1,6 +1,6 @@
-fstf
-ieho
-rciu
-sorr
-tndt
+fstff . . . . . . l
+iehoi . . . . . . a
+rciuf . . . . . . s
+sorrt . . . . . . t
+tndth
  d h
